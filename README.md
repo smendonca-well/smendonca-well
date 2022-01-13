@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Sergio Mendonça, one of BairesDev software engineers alocated for Well.
